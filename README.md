@@ -1,1 +1,1 @@
-## Welcome to My GitHub Pages - Varun Sharma
+## Welcome to My GitHub Pages
